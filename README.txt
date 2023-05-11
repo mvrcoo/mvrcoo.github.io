@@ -15,11 +15,10 @@ a talented photographer from Vancouver who graciously released it on Unsplash un
 the CC0 license. Be sure to check out his other stuff over at flickr (link below)
 as well as all the other kickass CC0-licensed images at Unsplash (unsplash.com).
 
-Questions/comments/issues = just email or find me on Twitter. Have fun!
-
+Credit:
 AJ
 aj@lkn.io | @ajlkn
-
+Questions/comments/issues = just email or find me on Twitter. Have fun!
 
 The Scrolling Background:
 
